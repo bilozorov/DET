@@ -1,3 +1,8 @@
+# [THE UNIVERSAL DET PHOTO DESCRIPTION TEMPLATE](https://github.com/bilozorov/DET/blob/main/Describe%20the%20Photo/!DET_Photo_Template_By_Type.docx)
+
+---
+
+
 # Duolingo English Test — "Write About a Photo" Complete Study Guide
 
 > **What is this?** A complete set of help notes covering every lesson from the course, plus bonus vocabulary resources. Use this to prepare for the *Write About a Photo* question type on the Duolingo English Test (DET).

@@ -1,3 +1,7 @@
+# [THE UNIVERSAL DET WRITING TEMPLATE](https://github.com/bilozorov/DET/blob/main/Write%20About%20The%20Topic%20/!DET_Writing_Template_By_Type.docx)
+
+---
+
 # Duolingo English Test — "Write About the Topic" Complete Study Guide
 
 ---
